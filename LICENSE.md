@@ -1,4 +1,4 @@
-# 
+# Nuevo dex front-running bot plantillas para Mac OS | Último dex front-running bot plantillas para PC Windows. Con conversión de formatos y ejecución de órdenes límite — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
